@@ -20,5 +20,3 @@
 💼 [LinkedIn](https://www.linkedin.com/in/aerosam/) | 📖 [Exoplanet Paper](https://online.fliphtml5.com/wtdlv/nhmr/)
 
 ---
-
-> “One day I’ll build the ship that gets us there.” 🌌
